@@ -1,1 +1,1 @@
-# read-read-read
+new to these stuff, I got suggested to use fonts but wtwv. XOXO. uh, I like blue. Ok this is awkward. Im not gon play Pony town as often as my friend, i dont need to put all efforts in. SIGMA SIGMA SIGMA
